@@ -6,8 +6,6 @@ I'm A Software Engineer, that has been working as a Front-End developer since 20
 
 I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
 
-### 🌍 "Quanto mais eu sei, mais eu sou" 🧠
-
 - 📍 From PB living in João Pessoa
 
 Reach me out 👇🏼
