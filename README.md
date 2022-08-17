@@ -1,6 +1,6 @@
 # Hey 👋
 
-My name is Lucas  França 🇧🇷
+My name is Lucas  França - 🇧🇷
 
 I'm A Software Engineer, that has been working as a Front-End developer since 2020.  💻
 
