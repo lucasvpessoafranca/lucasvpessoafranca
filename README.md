@@ -1,12 +1,12 @@
 # Hey 👋
 
-My name is Lucas  França - 🇧🇷
+My name is Lucas  França Viado - 🇧🇷
 
-I'm A Software Engineer, that has been working as a Front-End developer since 2020.  💻
+I'm A Software Engineer, likes BBC.  💻
 
-I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
+what you imagine i can do !!!! 
 
-- 📍 From PB living in João Pessoa
+- 📍 From PB living in Africa
 
 Reach me out 👇🏼
 
