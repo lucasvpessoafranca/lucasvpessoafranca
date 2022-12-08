@@ -1,12 +1,11 @@
 # Hey 👋
 
-My name is Lucas  França Viado - 🇧🇷
+My name is Lucas  França - 🇧🇷
 
-I'm A Software Engineer, likes BBC.  💻
+I'm A Software Engineer  💻
 
-what you imagine i can do !!!! 
 
-- 📍 From PB living in Africa
+- 📍 From PB living in João Pessoa
 
 Reach me out 👇🏼
 
